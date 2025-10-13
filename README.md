@@ -1,3 +1,3 @@
 # My Life Testimony
 
-- [People](./people/README.md)
+- [Peoples](./peoples)
