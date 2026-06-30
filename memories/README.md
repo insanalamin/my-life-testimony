@@ -14,3 +14,13 @@ Semacem tempat untuk ngerental PS, ato game, apa ada hubungannya dengan koin? at
 
 ### Rumah Baru
 Awal-awal pindahan rumah, bentuk rumah-rumah masih sama semua. Naik motor Honda warna merah putih boncengan ber empat, Bapa, Um Enang, dan Um Emuk. Liat bapak-bapak komplek kumpul, kayanya sambil jongkok deket babakaran, sambil nyeruput minuman-minuman kaleng. Di lahan kosong 70 meter an arah timur rumah, ada satu gudang memanjang dan tertutup, setelah lahan tersebut, ada satu selokan agak gede lebar 1-1.5 meter an, dengan airnya yang warnanya kehitam-hijauan mungkin ada banyak ganggang di sana, dan ada beberapa tanaman dan pohon di sisi sebrangnya. Ingetan di waktu ini kebanyakan nuansa mendung ato jelang sore.
+
+## 1989-1992
+
+### Ingetan-Ingetan Awal
+Kayaknya ingetan pertama hidup ada di taun-taun ini, terutama ketika dimandiin di halaman ketika sore hari, sepertinya ketika mulai mau matahari tenggelam, sinar mataharinya masuk ke area mandi, area rumah Papih Mamih itu belum jadi ruangan tamu, masih area terbuka, lantainya kayak ubin batu ato abu-abu khas jaman itu. Mandinya di jolang, kayanya sempet dibanjurin juga berdiri turun dari jolang. Kayanya ada taneman hijau juga di situ, pohon pandan kayanya.
+
+Setelah itu.. taun 1991 an kayaknya inget pernah kasura, nuansa ingetan ketika itu rumah sodara yang temboknya putih, ada halaman rumput juga kayaknya, ada nuansa abu juga di luar rumahnya, taun-taun sesudahnya baru tau kalo ketika itu sempat tinggal di situ. 
+
+### Haur Pancuh dan Pemilu 9 Juni 1992
+Pemilu 9 Juni 1992 kayanya salah satu momen yang cukup jelas di ingetan, ada panggung dan bilik pemungutan suara, yang kalo ga salah tiap bilik itu disekat-sekat oleh kain terpal biru ato kain biru,, termasuk pembates dengan area luar. Ada kursi-kursi ala ondangan juga. Ketika itu nangis ingin ikut nyoblos, tapi ga dibolehin, kayanya penting banget untuk ga ikut masuk, ketika nangis, di serahin dulu ketetangga oleh Mamah, disuruh baca kata-kata di area pencoblosan. 
