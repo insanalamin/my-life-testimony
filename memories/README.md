@@ -2,6 +2,9 @@
 
 ## 2008
 
+### Plesiran
+Pertama dateng ke sana dianter, gang pertama ke kiri, ada ibu-ibu yang nawarin kostan sekaligus nawarin jasa laundry
+
 ### Cikutra Barat
 Ada satu tempat langganan laundry yang harganya cukup terjangkau di sana. Kenapa ngelaundry? ah larena ga ada mesin cuci, kayanya ke sana sekitar seminggu sekali. Emang lucu juga, harus naik angkot pirage ke laundry, karena nanjak rada jauh. Dari jalan ada parkiran, terus pintu ala aluminium ada kacanya. Ah keranjang plastik bolong2 putih, lalu nimbang berapa berat cuciannya. Ai plastik buat bawa cuciannya dari mana ya? kemungkinan besar pake plastik bekas sebelumnya kalo abis ambil cucian. Ai ambil cuciannya tiap kapan ya? ah pulang kuliah, turun angkot, ambil. Asa lupa feeling bawa hasil cucian di plastik yang kelipet kesetrika rapih naik angkot biru, padahal cukup rutin.
 
