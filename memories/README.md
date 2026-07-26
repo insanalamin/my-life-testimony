@@ -1,5 +1,10 @@
 # Memories
 
+## 2012
+
+### Pulau Payung
+Agustus 2012. Laut sunyi terang bulan tengah malam dari pelabuhan Muara Angke ke Pulau Payung.
+
 ## 2011
 
 ### Cihampelas
