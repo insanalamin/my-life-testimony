@@ -11,6 +11,8 @@ Target awal waktu itu Honda CS1. Mungkin karena harganya relatif lebih terjangka
   width="320"
 />
 
+Hari Sabtu atau Minggu, iseng, dari Another Room ke kampung halaman sisi timur Cidurian, via Gunung Manglayang. Ke Lembang dulu via Ciumbuleuit.. lalu belok kanan ke daerah Cibodas Lembang,, nyusurin isi utara patahan-patahan KBU, nyusur masuk kawasan Bukit Tunggul, langit kelabu, suasana jalan berbatu yang sepi bikin nuansa cukup memorable,, pertama kali liat dan lewat jalan kayak gini, apakah nanti bener bisa turun ke Cilengkrang ato engga, alhamdulillah bisa, turun via Cilengkrang, AH Nasution, Cinambo, Soekarno-Hatta. Seru juga. Sampe di rumah, lagi ada tamu, sore2 langit yang masih kelabu. Uji jalan mesin baru. Gatel juga ingin ngemodif bodynya dengan aneka stiker.
+
 [Let it Go - Avril Lavigne](https://music.youtube.com/watch?v=FZ3-B2qKIEQ&si=Nt4VJol9rRvx6Vwi)
 [Perjalanan Terindah - Hoolahoop feat. Aska Rocket Rockers](https://music.youtube.com/watch?v=3WUzxnyRmOQ&si=QqeFDCvFjw67kf3Q)
 
