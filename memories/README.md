@@ -7,8 +7,16 @@ Agustus 2012. Laut sunyi terang bulan tengah malam dari pelabuhan Muara Angke ke
 
 ## 2011
 
-### Cihampelas
-[Blink 182 - Even If She Falls](https://music.youtube.com/watch?v=y6Zur1TZNts)
+### Another Room in Cihampelas
+[Even If She Falls - Blink 182](https://music.youtube.com/watch?v=y6Zur1TZNts)
+[Fast Car - Tracy Chapman](https://music.youtube.com/watch?v=IJ8i49EqgYI)
+
+## 2010
+
+### A Room in Cihampelas
+Dari depan kamar, teras jemuran lantai 2 sisi timur rumah, hamparan lembah sungai Cikapundung daerah Cihampelas bagian utara. Sabuga keliatan ga begitu jauh, rumah-rumah menuju arah sungai makin ke bawah hingga atap-atap keliatan bersusun makin rendah, dengan segala atributnya kayak jemuran, aneka genteng, aneka bentuk bangunan, di pemukiman serba gang, serba jalan miring curam. Dari sana sebenernya ga terlalu jauh ke kampus kalo aja jalan menuju penyeberangan kayu itu ga muter-muter, tinggal lurus, kalo bisa gitu enak banget sih, via terowongan langsung masuk. Pemandangan malemnya selalu keinget, sinar-sinar lampu rumah yang deket, lampu2 sabuga, kawasan gelap pohon-pohon tinggi yang berderet dari mulai Batan sampe ujung kebun binatang Bandung, hamparan pemukiman sekitar sungai hingga jembatan Pasopati dengan lampu-lampunya. 15 Meteran dari mesjid, tiap jum'atan jamaah luber sampe ke teras, keluar kamar langsung duduk gelar sajadah. Kamar mandi ada di lantai bawah, tembok dan lantainya dari bahan semen kayanya yang udah mulai hitam, mungkin ada lumut juga, ala 80 an, pake lampu karena gelap ga ada jendela, airnya bener-bener jernih dan seger mungkin karena deket ke wilayah perbukitan.
+
+[Don't Stop Believing](https://music.youtube.com/watch?v=sXcyiA38z9I&si=YbouLXPg0cjIgeSI)
 
 ## 2008
 
