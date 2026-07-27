@@ -5,7 +5,11 @@
 ### Dtracker
 Target awal waktu itu Honda CS1. Mungkin karena harganya relatif lebih terjangkau, untuk bentuk yang kokoh dan unik. Entah gimana, jadinya Kawasaki Dtracker. Kenapa enggak KLX ya.. hmm.. ketika itu modelnya ga banyak, cuma ada KLX hijau, dan Dtracker orange. Karena roda jalan kayanya, biar bisa dipake harian. Kawasaki Cimahi selepas turunan jembatan Cimindi kalo dari arah Bandung. Kayanya motor itu emang terlahir untuk berkarir di kaki dua gunung Burangrang - Tangkuban Prahu.
 
-![Honda CS1](./honda-cs1.jpeg)
+<img
+  src="./honda-cs1.jpeg"
+  alt="Honda CS1"
+  width="320"
+/>
 
 [Let it Go - Avril Lavigne](https://music.youtube.com/watch?v=FZ3-B2qKIEQ&si=Nt4VJol9rRvx6Vwi)
 [Perjalanan Terindah - Hoolahoop feat. Aska Rocket Rockers](https://music.youtube.com/watch?v=3WUzxnyRmOQ&si=QqeFDCvFjw67kf3Q)
