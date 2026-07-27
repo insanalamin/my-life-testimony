@@ -54,6 +54,30 @@ Ada satu tempat langganan laundry yang harganya cukup terjangkau di sana. Kenapa
 
 [Menjelang Hilang - Closeheaad](https://music.youtube.com/watch?v=ESULSnW0HFo)
 
+## 2006
+
+### Awal masuk kuliah
+Koak. Jalan yang memutih penuh bercak. Pagi yang mendung. Acara bareng Fakultas Teknik Industri di semacem aula / GOR. Seorang kawan sepertinya beraksi di sana. Sebelum itu, penerimaan mahasiswa baru di Sabuga. Seperti biasa, nuansa ketika ngeliat wajah2 baru, yang kebanyakan berlogat gue elu, logat yang ketika itu entah kenapa dengernya bikin minder. Mulai liat tiap wajah yang ada di sana, mulai menebak-nebak karakter. Cari-cari temen yang dikenal. Beres dari sana, masuk ke kampus, tapi di pagi yang mendung itu kampus kayanya masih sepi, belum mulai perkuliahan. Kalo ga salah mesin ada kumpul perdana di ruang kkuliah jurusan. 
+
+## 2005
+
+## 2004
+
+### Light of Electrical Dreams 2024
+
+## 2003
+
+### Ospek masuk kelas 1 SMA
+Beli bahan-bahan ospek di toko buku Singgalang.
+
+## 2002
+
+## 2001
+
+## 2000
+
+### Ospek masuk kelas 1 SMP
+
 ## 1997-1999
 
 ### Algris
