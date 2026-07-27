@@ -1,5 +1,15 @@
 # Memories
 
+## 2026
+
+### Riset Juni-Juli
+Progress Review terlewati, artinya tanggung jawab semakin berbentuk, semakin jelas. Ngambil peluang sekaligus tantangan, artinya siap untuk cerdik mengelola progres demi progres. Nama adalah doa. 
+
+## 2020
+
+### Jabar Data Stronghold
+Cuaca yang paling keinget ketika itu adalah hujan, mendung, sunyi... siang tersunyi untuk hari biasa di depan Gedung Sate. Jalan begitu lengang. Masih keinget Februari awal masuk kerja, diwawancara 2 sohabat data, ngantor di rumah gede, dapet tugas integrasi data ke pusat, nginep di penginapan tertentu, trus pindahan kantor ke tempat bersih canggih, mulai eksplorasi arsitektur terdistribusi, mulai kerasa seru, eh, tiba-tiba Covid-19 dateng, situasi jadi serba darurat, ga sampe 2 hari kemudian kantor baru bernuansa digital itu, tiba2 jadi markas koordinasi, di jaga polisi-polisi, situasi agak sedikit tegang, dan dimulailah era Pikobar, satu periode kerja yang mungkin sangat diinget temen-temen ketika itu.
+
 ## 2013
 
 ### Dtracker
