@@ -1,5 +1,15 @@
 # Memories
 
+## 2013
+
+### Dtracker
+Target awal waktu itu Honda CS1. Mungkin karena harganya relatif lebih terjangkau, untuk bentuk yang kokoh dan unik. Entah gimana, jadinya Kawasaki Dtracker. Kenapa enggak KLX ya.. hmm.. ketika itu modelnya ga banyak, cuma ada KLX hijau, dan Dtracker orange. Karena roda jalan kayanya, biar bisa dipake harian. Kawasaki Cimahi selepas turunan jembatan Cimindi kalo dari arah Bandung. Kayanya motor itu emang terlahir untuk berkarir di kaki dua gunung Burangrang - Tangkuban Prahu.
+
+![Honda CS1](./honda-cs1.jpeg)
+
+[Let it Go - Avril Lavigne](https://music.youtube.com/watch?v=FZ3-B2qKIEQ&si=Nt4VJol9rRvx6Vwi)
+[Perjalanan Terindah - Hoolahoop feat. Aska Rocket Rockers](https://music.youtube.com/watch?v=3WUzxnyRmOQ&si=QqeFDCvFjw67kf3Q)
+
 ## 2012
 
 ### Pulau Payung
@@ -16,7 +26,7 @@ Agustus 2012. Laut sunyi terang bulan tengah malam dari pelabuhan Muara Angke ke
 ### A Room in Cihampelas
 Dari depan kamar, teras jemuran lantai 2 sisi timur rumah, hamparan lembah sungai Cikapundung daerah Cihampelas bagian utara. Sabuga keliatan ga begitu jauh, rumah-rumah menuju arah sungai makin ke bawah hingga atap-atap keliatan bersusun makin rendah, dengan segala atributnya kayak jemuran, aneka genteng, aneka bentuk bangunan, di pemukiman serba gang, serba jalan miring curam. Dari sana sebenernya ga terlalu jauh ke kampus kalo aja jalan menuju penyeberangan kayu itu ga muter-muter, tinggal lurus, kalo bisa gitu enak banget sih, via terowongan langsung masuk. Pemandangan malemnya selalu keinget, sinar-sinar lampu rumah yang deket, lampu2 sabuga, kawasan gelap pohon-pohon tinggi yang berderet dari mulai Batan sampe ujung kebun binatang Bandung, hamparan pemukiman sekitar sungai hingga jembatan Pasopati dengan lampu-lampunya. 15 Meteran dari mesjid, tiap jum'atan jamaah luber sampe ke teras, keluar kamar langsung duduk gelar sajadah. Kamar mandi ada di lantai bawah, tembok dan lantainya dari bahan semen kayanya yang udah mulai hitam, mungkin ada lumut juga, ala 80 an, pake lampu karena gelap ga ada jendela, airnya bener-bener jernih dan seger mungkin karena deket ke wilayah perbukitan.
 
-[Don't Stop Believing](https://music.youtube.com/watch?v=sXcyiA38z9I&si=YbouLXPg0cjIgeSI)
+[Don't Stop Believing - Journey](https://music.youtube.com/watch?v=sXcyiA38z9I&si=YbouLXPg0cjIgeSI)
 
 ## 2008
 
@@ -25,6 +35,8 @@ Pertama dateng ke sana dianter, gang pertama ke kiri, ada ibu-ibu yang nawarin k
 
 ### Cikutra Barat
 Ada satu tempat langganan laundry yang harganya cukup terjangkau di sana. Kenapa ngelaundry? ah larena ga ada mesin cuci, kayanya ke sana sekitar seminggu sekali. Emang lucu juga, harus naik angkot pirage ke laundry, karena nanjak rada jauh. Dari jalan ada parkiran, terus pintu ala aluminium ada kacanya. Ah keranjang plastik bolong2 putih, lalu nimbang berapa berat cuciannya. Ai plastik buat bawa cuciannya dari mana ya? kemungkinan besar pake plastik bekas sebelumnya kalo abis ambil cucian. Ai ambil cuciannya tiap kapan ya? ah pulang kuliah, turun angkot, ambil. Asa lupa feeling bawa hasil cucian di plastik yang kelipet kesetrika rapih naik angkot biru, padahal cukup rutin.
+
+[Menjelang Hilang - Closeheaad](https://music.youtube.com/watch?v=ESULSnW0HFo)
 
 ## 1997-1999
 
