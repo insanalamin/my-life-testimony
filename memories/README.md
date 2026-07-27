@@ -10,6 +10,16 @@ Progress Review terlewati, artinya tanggung jawab semakin berbentuk, semakin jel
 ### Jabar Data Stronghold
 Cuaca yang paling keinget ketika itu adalah hujan, mendung, sunyi... siang tersunyi untuk hari biasa di depan Gedung Sate. Jalan begitu lengang. Masih keinget Februari awal masuk kerja, diwawancara 2 sohabat data, ngantor di rumah gede, dapet tugas integrasi data ke pusat, nginep di penginapan tertentu, trus pindahan kantor ke tempat bersih canggih, mulai eksplorasi arsitektur terdistribusi, mulai kerasa seru, eh, tiba-tiba Covid-19 dateng, situasi jadi serba darurat, ga sampe 2 hari kemudian kantor baru bernuansa digital itu, tiba2 jadi markas koordinasi, di jaga polisi-polisi, situasi agak sedikit tegang, dan dimulailah era Pikobar, satu periode kerja yang mungkin sangat diinget temen-temen ketika itu.
 
+## 2014
+
+### Kongkow Tugas Akhir IT, Awal Masuk Pusdalisbang
+
+### September Adalah Kunci
+
+### Jalan Mangga
+
+### Seluk Beluk Sekitar Pindad
+
 ## 2013
 
 ### Dtracker
@@ -32,6 +42,9 @@ Hari Sabtu atau Minggu, iseng, dari Another Room ke kampung halaman sisi timur C
 Agustus 2012. Laut sunyi terang bulan tengah malam dari pelabuhan Muara Angke ke Pulau Payung.
 
 [Trip The Darkness - Lacuna Coil](https://music.youtube.com/watch?v=l8dIPxvzIW8&si=smDB_i5XGJxDSOW2)
+
+### Fitnes Sepuasnya Sepanjang Tahun di Tempat Sejuk, Ini Promomya!
+Awal 2012 kayaknya, di parkiran barat kampus, ada dua orang bro kasih brosur fitnes, lagi promo katanya, setaun sekitar ~ 1jt, dengan segudang fasilitas, ga begitu jauh dari kampus, kayanya 3 km an ke utara. Ternyata, emang paket fitnes ter worth it. Ada kolam renang, kolam air panas, sauna, plus aneka kelas olahraga, dan bisa ke sana sepuasnya. 
 
 ## 2011
 
