@@ -33,8 +33,8 @@ Target awal waktu itu Honda CS1. Mungkin karena harganya relatif lebih terjangka
 
 Hari Sabtu atau Minggu, iseng, dari Another Room ke kampung halaman sisi timur Cidurian, via Gunung Manglayang. Ke Lembang dulu via Ciumbuleuit.. lalu belok kanan ke daerah Cibodas Lembang,, nyusurin isi utara patahan-patahan KBU, nyusur masuk kawasan Bukit Tunggul, langit kelabu, suasana jalan berbatu yang sepi bikin nuansa cukup memorable,, pertama kali liat dan lewat jalan kayak gini, apakah nanti bener bisa turun ke Cilengkrang ato engga, alhamdulillah bisa, turun via Cilengkrang, AH Nasution, Cinambo, Soekarno-Hatta. Seru juga. Sampe di rumah, lagi ada tamu, sore2 langit yang masih kelabu. Uji jalan mesin baru. Gatel juga ingin ngemodif bodynya dengan aneka stiker.
 
-[Let it Go - Avril Lavigne](https://music.youtube.com/watch?v=FZ3-B2qKIEQ&si=Nt4VJol9rRvx6Vwi)
-[Perjalanan Terindah - Hoolahoop feat. Aska Rocket Rockers](https://music.youtube.com/watch?v=3WUzxnyRmOQ&si=QqeFDCvFjw67kf3Q)
+- [Let it Go - Avril Lavigne](https://music.youtube.com/watch?v=FZ3-B2qKIEQ&si=Nt4VJol9rRvx6Vwi)
+- [Perjalanan Terindah - Hoolahoop feat. Aska Rocket Rockers](https://music.youtube.com/watch?v=3WUzxnyRmOQ&si=QqeFDCvFjw67kf3Q)
 
 ## 2012
 
@@ -49,8 +49,9 @@ Awal 2012 kayaknya, di parkiran barat kampus, ada dua orang bro kasih brosur fit
 ## 2011
 
 ### Another Room in Cihampelas
-[Even If She Falls - Blink 182](https://music.youtube.com/watch?v=y6Zur1TZNts)
-[Fast Car - Tracy Chapman](https://music.youtube.com/watch?v=IJ8i49EqgYI)
+
+- [Even If She Falls - Blink 182](https://music.youtube.com/watch?v=y6Zur1TZNts)
+- [Fast Car - Tracy Chapman](https://music.youtube.com/watch?v=IJ8i49EqgYI)
 
 ## 2010
 
@@ -73,8 +74,10 @@ Pertama dateng ke sana dianter, gang pertama ke kiri, ada ibu-ibu yang nawarin k
 ### Cikutra Barat
 Ada satu tempat langganan laundry yang harganya cukup terjangkau di sana. Kenapa ngelaundry? ah larena ga ada mesin cuci, kayanya ke sana sekitar seminggu sekali. Emang lucu juga, harus naik angkot pirage ke laundry, karena nanjak rada jauh. Dari jalan ada parkiran, terus pintu ala aluminium ada kacanya. Ah keranjang plastik bolong2 putih, lalu nimbang berapa berat cuciannya. Ai plastik buat bawa cuciannya dari mana ya? kemungkinan besar pake plastik bekas sebelumnya kalo abis ambil cucian. Ai ambil cuciannya tiap kapan ya? ah pulang kuliah, turun angkot, ambil. Asa lupa feeling bawa hasil cucian di plastik yang kelipet kesetrika rapih naik angkot biru, padahal cukup rutin.
 
-[Menjelang Hilang - Closeheaad](https://music.youtube.com/watch?v=ESULSnW0HFo)
-[Cinta Dalam Kesedihan - Krishna & the New Spectrum](https://music.youtube.com/watch?v=D4W0RjTiQOQ)
+- [Menjelang Hilang - Closeheaad](https://music.youtube.com/watch?v=ESULSnW0HFo)
+- [Cinta Dalam Kesedihan - Krishna & the New Spectrum](https://music.youtube.com/watch?v=D4W0RjTiQOQ)
+- [Sorry - Avatar](https://music.youtube.com/watch?v=olX7MvRvskE&si=AIUgYvO8eMESkmxa)
+- [Better Season - EP - Rocket Rockers](https://music.youtube.com/playlist?list=OLAK5uy_nscfoat6P8EQxKXJd9uvJMbm7dPTWH3Xc)
 
 ## 2006
 
