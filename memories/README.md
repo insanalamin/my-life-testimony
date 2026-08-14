@@ -126,6 +126,9 @@ Beli bahan-bahan ospek di toko buku Singgalang.
 ### Algris
 Semacem tempat untuk ngerental PS, ato game, apa ada hubungannya dengan koin? ato ada rental PS plus game pake koinnya? lokasinya ada di jalan lurusan jalan utama Metro Margahayu Raya pas mau belok kanan ke terminal, kalo dari arah Soekarno Hatta.
 
+### Les di rumah Almarhumah
+Sekitar tahun 1998 ke 1999, ada les sepulang sekolah ato sebelum sekolah yang dilaksanakan di rumah beliau. Ada jajanan juga di sana, jus tomat, ada yang Rp 300 ato full Rp 500. Ada juga Indomie kuah ato goreng, kayaknya sekitar Rp 700. Jadi bawa Rp 1000 udah cukup makan minum kenyang. Ke sini biasanya gerombolan naik sepedah ber grup-grup. Ada juga yang rumah-rumahnya memang deket situ jadi bisa jalan. Entah gimana beberapa temen suka iseng ke seorang pria paruh baya bernama A**. Pria tersebut cukup berkarakter, kulitnya berwarna gelap, rambutnya abu-putih, biasanya pakai kemeja jalan sekitar situ. Proses lesnya biasanya di awal pesen-pesen dulu makanan, trus nanti mulai mengerjakan soal dulu sambil jus dan mie dimasak, lalu nanti lanjut pembahasan tiap soal. Lokasinya di teras, cukup teduh karena ada beberapa pohon dan hijau-hijau di tanah (rumput). Kami maupun orang tua ga pernah lihat itu satu ekstra komersialisasi pembelajaran, kenapa ga di sekolah, dsb. Karena memang sekolah kami sehari cuma 3,5 jam. 1 Hari ada 3 periode pembelajaran untuk tiap 1 kelas. Dan momen les itu jadi momen menjelajah komplek, dan belajar sambil refreshing, kapan lagi belajar ama guru kelas sambil duduk seenaknya, makan minum Indomie dan Jus Tomat, dan gak dimarahin :D. Padahal kalo dipikir-pikir, secara era, kalo ketika itu udah ada medsos, mungkin lagi rame-ramenya negara dan perpolitikan, tapi seolah ga ada masalah apa-apa, enjoy aja di sana.
+
 ## 1993
 
 ### Rumah Baru
