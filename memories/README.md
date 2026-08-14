@@ -50,6 +50,7 @@ Awal 2012 kayaknya, di parkiran barat kampus, ada dua orang bro kasih brosur fit
 
 ### Another Room in Cihampelas
 
+- [Epsilon - Album - Blood Stain Child](https://music.youtube.com/playlist?list=OLAK5uy_kCF6YleRUHcgyD0kpJL_oRMfZoX4cBgFg)
 - [Even If She Falls - Blink 182](https://music.youtube.com/watch?v=y6Zur1TZNts)
 - [Fast Car - Tracy Chapman](https://music.youtube.com/watch?v=IJ8i49EqgYI)
 
@@ -80,6 +81,7 @@ Ada satu tempat langganan laundry yang harganya cukup terjangkau di sana. Kenapa
 - [Sorry - Avatar](https://music.youtube.com/watch?v=olX7MvRvskE&si=AIUgYvO8eMESkmxa)
 - [Menari - Cliff](https://www.youtube.com/watch?v=17RsJdYgTAM)
 - [Better Season - EP - Rocket Rockers](https://music.youtube.com/playlist?list=OLAK5uy_nscfoat6P8EQxKXJd9uvJMbm7dPTWH3Xc)
+- [Illsurrekshun - Album - Homicide](https://open.spotify.com/album/4HHXI8YCAodG3zB3wJapfu)
 
 ## 2006
 
@@ -89,6 +91,11 @@ Koak. Jalan yang memutih penuh bercak. Pagi yang mendung. Acara bareng Fakultas 
 ## 2005
 
 ## 2004
+
+### ASSETON Sebelah Perpustakaan
+Pertama kali dapet kelas di sini, bikin acara kegiatan bersih-bersih kelas di hari Sabtu apa Minggu. Kelasnya agak cukup gelap karena pencahayaan utamanya dateng dari bagian belakang kelas, sehingga bagian papan tulisnya ga seterang kalo jendela-jendelnya di pinggir. Bagian belakang kelasnya cukup luas. Di belakang kelas ada petak tanah segitiga yang diapit kelas, WC, dan kelas lain. Bagian pinggir kanan kelas, ada gang ukuran sekitar 2 meter, baru setelahnya perpustakaan. Di mana di perpustakaan itu ada novel cukup seru, Lelaki di Titik Nol. Bagian depan kelas, lantai dari bahan abu-abu, lantai agak jadul. Depan teras kelas, ada area hijau dengan pohon, lalu Jalan Kenangan yang cukup dilewatin 2 mobil, lalu ada area hijau lagi, lalu bagian belakang dari deretan kelas. Pinggir kiri kelas ada kelas IPA +1, pinggirnya lagi kantin. Kantinnya lumayan agak luas, tapi kayaknya tiap area bangku punya kuota level kelas. Tapi ketika Sabtu Minggu kosong, sehingga bisa dipake santai sebelum dan sesudah bebersih kelas.
+
+Di sini biasanya bareng Wanda, Galih, Teguh, Momon, dan segudang teman-teman lainnya main kartu Yu-Gi-Oh sepulang sekolah, ato main gitar alias gigitaran. Gitarnya dari mana? bawa asa na mah, trus ditaro di kelas. Salah satu momen menegangkan ketika ditegur Almarhum, karena bilangin jam kelasnya sudah habis :D, antah gara2 liat ke arah jam ketika momen serius untuk ngingetin jamnya :D. 
 
 ### Light of Electrical Dreams 2024
 
@@ -104,6 +111,9 @@ Beli bahan-bahan ospek di toko buku Singgalang.
 ## 2001
 
 ### Battle Realms
+
+- [Sesuatu Yang Tertunda - Album - Padi](https://music.youtube.com/playlist?list=OLAK5uy_ntVSwhLtouYH8JOSloj78RuBisV03yq6M)
+- [Take Off Your Pants and Jacket - Album - Blink 182](https://music.youtube.com/playlist?list=OLAK5uy_lK3ZyTSXn1_2wUGGWvubimc0_HDAQZVMU)
 
 ## 2000
 
